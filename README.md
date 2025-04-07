@@ -1,4 +1,4 @@
-# 🚀 [Your Company Name]
+# VM Innovations
 
 **Empowering Businesses with Innovative IT Solutions**
 
