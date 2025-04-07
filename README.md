@@ -2,7 +2,7 @@
 
 **Empowering Businesses with Innovative IT Solutions**
 
-Welcome to **[Your Company Name]** – where technology meets excellence. We specialize in delivering tailored IT services that drive growth, efficiency, and digital transformation.
+Welcome to **VM Innovations** – where technology meets excellence. We specialize in delivering tailored IT services that drive growth, efficiency, and digital transformation.
 
 ---
 
